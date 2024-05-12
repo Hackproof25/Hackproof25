@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Ethical hacking and security.**
 
-- 📫 How to reach me **hackproof25@gmail.com**
+- 📫 How to reach me **hack25proof@gmail.com**
 
 - ⚡ Fun fact **I assert that smile is only thing that can be given to someone free of cost.**
 
